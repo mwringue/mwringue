@@ -13,7 +13,7 @@
 
 [𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨](https://pronouns.cc/@Meringue/FRIENDS) 
 [𝘴𝘪𝘨𝘯 𝘢𝘵𝘢](https://memei.atabook.org/) 
-[𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚](https://lemon-meringue.straw.page)
+ 
 
 <img src="https://files.catbox.moe/daq3xy.png" width="100%">
 
