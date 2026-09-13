@@ -11,8 +11,7 @@
 
 <br>
 
-[𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨](https://pronouns.cc/@Meringue/FRIENDS) 
-[𝖘𝖎𝖌𝖓 𝘢𝘵𝘢! ](https://memei.atabook.org/) 
+[𝙥𝙧𝙤𝙣𝙤𝙪𝙣𝙨](https://pronouns.cc/@Meringue/FRIENDS)  
  [𝗴𝘂𝗻𝘀.𝗹𝗼𝗹](https://guns.lol/mwringue)
 
 <img src="https://files.catbox.moe/daq3xy.png" width="100%">
