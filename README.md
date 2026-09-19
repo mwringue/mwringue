@@ -26,7 +26,7 @@ cy/lemon  .
 </details>
 
 
-[ᴘʀᴏɴᴏᴜɴs](https://pronouns.cc/@Meringue/FRIENDS) 
+[ᴘʀᴏɴᴏᴜɴs](https://pronouns.cc/@Meringue) 
 [guns](https://guns.lol/mwringue) 
 [sᴛʀᴀᴡᴘᴀɢᴇ](https://lemon-meringue.straw.page)
 
