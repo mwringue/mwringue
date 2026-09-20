@@ -14,7 +14,7 @@
 <details>
 <summary>🪽</summary>
 
-cy/lemon  . 
+cy/harle . 
  Harlequin fictkin
 
  freely int (unless dniuf,dni, dniuid) , c+h freely ^^ 
