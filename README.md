@@ -23,7 +23,7 @@ cy/harle .
 
  BYI: Please respect my boundaries, avoid making assumptions about me, and refrain from unnecessary drama, gossip, or insensitive jokes. Do not pressure me for personal information, attention, or explanations. I value honesty, mutual respect, and clear communication. Thank you for being considerate.
 
-I struggle with anxiety and may experience panic attacks, especially when overthinking. Please be mindful of how you interact with me, respect my boundaries, and communicate kindly. If I become quiet or leave, I may be feeling overwhelmed. Thank you for understanding. 
+I struggle with anxiety and may experience panic attacks, especially when overthinking. Please be mindful of how you interact with me, respect my boundaries, and communicate kindly,and be careful with your jokes. If I become quiet or leave, I may be feeling overwhelmed. Thank you for understanding. 
  
 </details>
 
