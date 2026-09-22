@@ -18,11 +18,6 @@ cy/harle .
  Harlequin fictkin
 
  freely int (unless dniuf,dni, dniuid) , c+h freely ^^ 
-
- for people in ponytown especially roleplayers please ask permission before wanting to roleplay with me and my friends because we get uncomfortable with that a lot especially in the TFC area :/
-
- BYI: Please respect my boundaries, avoid making assumptions about me, and refrain from unnecessary drama, gossip, or insensitive jokes. Do not pressure me for personal information, attention, or explanations. I value honesty, mutual respect, and clear communication. Thank you for being considerate.
-
  
 </details>
 
