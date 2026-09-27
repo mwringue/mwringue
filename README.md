@@ -14,10 +14,10 @@
 <details>
 <summary>🪽</summary>
 
-cy/harle . 
- Harlequin fictkin
+call me 
+  cy or harle . 
 
- recovering. 
+ c*h & int freely wiwiwi 
  
 </details>
 
