@@ -5,23 +5,6 @@
 <img src="https://files.catbox.moe/ad4hb7.gif" width="30%">
 <img src="https://files.catbox.moe/qkd0c1.gif" width="30%">
 
-<br>
-
-<img src="https://files.catbox.moe/5sdn9a.png" width="500">
-
-<br>
-
-<details>
-<summary>🪽</summary>
-
-call me 
-  cy or harle . 
-
- c*h & int freely wiwiwi 
- 
-</details>
-
-
 [ᴘʀᴏɴᴏᴜɴs](https://pronouns.cc/@Meringue) 
 [guns](https://guns.lol/mwringue) 
 [sᴛʀᴀᴡᴘᴀɢᴇ](https://lemon-meringue.straw.page)
