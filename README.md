@@ -13,7 +13,7 @@
 <details>
 <summary>click . ! 🤍</summary>
 
- " Maybe I’m not meant to be understood by everyone—Just remembered by the right ones. "
+ about me websites to learn more about me :< 
 
 [𝓟𝓻𝓸𝓷𝓸𝓾𝓷𝓼](https://pronouns.cc/@Meringue) 
           O_o 
