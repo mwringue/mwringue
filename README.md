@@ -13,7 +13,7 @@
 <details>
 <summary>click . ! 🤍</summary>
 
- about me websites to learn more about me :< 
+ about me websites to learn more about me :< idk gang I'm dumb.. and stupid let my tiny brain process some of these stuff
 
 [𝓟𝓻𝓸𝓷𝓸𝓾𝓷𝓼](https://pronouns.cc/@Meringue) 
           O_o 
