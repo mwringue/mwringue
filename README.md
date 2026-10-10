@@ -16,7 +16,7 @@
  " Maybe I’m not meant to be understood by everyone—Just remembered by the right ones. "
 
 [𝓟𝓻𝓸𝓷𝓸𝓾𝓷𝓼](https://pronouns.cc/@Meringue) 
-[𝙶𝚞𝚗𝚜](https://guns.lol/mwringue) 
+          O_o 
 [𝓢𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮](https://hey-its-me-verity.straw.page)
 
 </details>
