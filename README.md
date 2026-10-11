@@ -23,9 +23,16 @@
 
 </details>
 
+ something to remember
+
+<img
+src="https://files.catbox.moe/aojfl8.png" width="150">
+
 <img src="https://files.catbox.moe/9csd65.png" width="100%">
 
 </div>
+
+
 <!--
 **mwringue/mwringue** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
