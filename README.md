@@ -13,7 +13,7 @@
 <details>
 <summary>click . ! 🤍</summary>
  
-<img src="https://files.catbox.moe/jgelb4.gif" width="100">
+<img src="https://files.catbox.moe/7ynd1z.gif" width="100">
 
  about me websites to learn more about me :< idk gang I'm dumb.. and stupid let my tiny brain process some of these stuff
 
