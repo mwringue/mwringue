@@ -12,7 +12,7 @@
 
 <br>
 <details>
-<summary>click . ! 🤍</summary>
+<summary> 💚💭 </summary></summary>
  
 <img src="https://files.catbox.moe/7ynd1z.gif" width="100">
 
