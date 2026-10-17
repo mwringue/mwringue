@@ -9,7 +9,6 @@
 
 <br>
 
-<img src="https://files.catbox.moe/llflcy.gif" width="150">
 
 <br>
 <details>
