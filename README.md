@@ -29,7 +29,7 @@
 </p>
 
 <img
-src="https://files.catbox.moe/br2c5i.png" width="240">
+src="https://files.catbox.moe/i2udou.png" width="240">
 
 <img src="https://files.catbox.moe/9csd65.png" width="100%">
 
