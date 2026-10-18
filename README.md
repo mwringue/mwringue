@@ -9,15 +9,6 @@
 
 <br>
 
-<img src="https://files.catbox.moe/7ynd1z.gif" width="100">
-
-
-<p align="center" style="margin: 30px 0;">
-  <img src="https://readme-typing-svg.demolab.com?font=Georgia&size=22&duration=1200&pause=500&color=B8D88A&center=true&vCenter=true&width=380&height=150&lines=Harle+%7E+17;He+%2F+they;Fil+%2F+eng;C%2Bh+idm+unless+on+dniuf." alt="Harle profile typing animation"/>
-</p>
-
-
-
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Comic+Neue&size=22&duration=3000&pause=1000&color=B3C289&center=true&vCenter=true&width=600&lines=about+me+websites+to+learn+more+about+me+%3C%3Bidk;gang+I'm+dumb..+and+stupid+let+my+tiny+brain+process"/>
 </p>
@@ -33,6 +24,9 @@
   </a>
 </p>
 
+<p align="center" style="margin: 30px 0;">
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&size=22&duration=1200&pause=500&color=B8D88A&center=true&vCenter=true&width=380&height=150&lines=Harle+%7E+17;He+%2F+they;Fil+%2F+eng;C%2Bh+idm+unless+on+dniuf." alt="Harle profile typing animation"/>
+</p>
 
 <img
 src="https://files.catbox.moe/br2c5i.png" width="240">
