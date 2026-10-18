@@ -26,7 +26,7 @@
 </p>
 
 <p align="center" style="margin: 30px 0;">
-  <img src="https://readme-typing-svg.demolab.com?font=Georgia&size=22&duration=1200&pause=500&color=B8D88A&center=true&vCenter=true&width=380&height=150&lines=Harle+%7E+17;He+%2F+they;Fil+%2F+eng;C%2Bh+idm+unless+on+dniuf." alt="Harle profile typing animation"/>
+  <img src="https://readme-typing-svg.demolab.com?font=Georgia&size=22&duration=1800&pause=500&color=B8D88A&center=true&vCenter=true&width=380&height=150&lines=C%2Bh+idm+unless+on+dniuf." alt="Harle profile typing animation"/>
 </p>
 
 <img
