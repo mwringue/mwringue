@@ -10,6 +10,7 @@
 
 <br>
 
+[![♫ anything — Adrianne Lenker](https://img.shields.io/badge/♫_anything-Adrianne_Lenker-B3C289?style=for-the-badge&logo=spotify&logoColor=white)](https://open.spotify.com/track/4PwWESSlTwzvw9B7bmtTLS)
 <p align="center">
   <img src="https://readme-typing-svg.demolab.com?font=Comic+Neue&size=22&duration=3000&pause=1000&color=B3C289&center=true&vCenter=true&width=600&lines=about+me+websites+to+learn+more+about+me+%3C%3Bidk;gang+I'm+dumb..+and+stupid+let+my+tiny+brain+process"/>
 </p>
