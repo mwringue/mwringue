@@ -24,10 +24,8 @@
 
 </details>
 
- something to remember
-
 <img
-src="https://files.catbox.moe/aojfl8.png" width="150">
+src="https://files.catbox.moe/br2c5i.png" width="300">
 
 <img src="https://files.catbox.moe/9csd65.png" width="100%">
 
