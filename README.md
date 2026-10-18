@@ -5,7 +5,7 @@
 
 <img src="https://files.catbox.moe/65gup7.png" width="100%">
 
-![sillies](https://hits.sh/github.com/mwringue.svg?label=sillies&color=B3C289&extraCount=1384)
+![sillies](https://hits.sh/github.com/mwringue.svg?label=sillies&color=B3C289&extraCount=1000)
 <img src="https://files.catbox.moe/nck7mj.png" width="70%">
 
 <br>
