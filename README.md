@@ -26,11 +26,6 @@
   </a>
 </p>
 
-
-
-<img
-src="https://files.catbox.moe/beo4mi.png" width="240">
-
 <img src="https://files.catbox.moe/9csd65.png" width="100%">
 
 
